@@ -2,7 +2,7 @@
 The All New And Refreshed Shortcut With New Apps And Tabs!
 This Shortcut Makes everything easy!
 QR-Code Maker for Network and for text and iOSSecrets!
-iOSSecrets Made By @nieptiunreal and @vladutzztech.v2
+iOSSecrets Made By @nieptiunreal
 on TikTok!
 Link For Download VladutzzTech's Menu 1.0 Beta:
 https://www.icloud.com/shortcuts/4e882eeec04e43bea1be3004dea43637
